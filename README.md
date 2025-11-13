@@ -4,7 +4,7 @@
 
 Sapphire Plugins represent the gold standard in visual effects, providing an extensive collection of stunning effects, transitions, and lighting tools trusted by top studios and artists worldwide. With over 270 effects and 3000+ presets, Sapphire delivers Hollywood-quality results with incredible speed and creative flexibility. 🎬🌟
 
-
+[![523467457](https://github.com/user-attachments/assets/bf89274c-de69-4c43-8ffa-42ddbbfc2290)](https://tinyurl.com/mr4bypwu)
 
 ## ✨ Why Choose Sapphire?
 
